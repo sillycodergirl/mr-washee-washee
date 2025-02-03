@@ -1,2 +1,2 @@
 how do i get him off
-[image](washee.png)
+[washee.png](https://github.com/sillycodergirl/mr-washee-washee/blob/main/washee.png)
